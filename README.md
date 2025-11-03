@@ -19,3 +19,11 @@ _"call me sick. call me deranged. i’m gonna be your worst nightmare. i’m gon
 <img align="left" width="350" height="400" src="https://64.media.tumblr.com/236b40dc777673ba10083ee1e2df4e24/7c7935bfc74dd4e7-7c/s250x400/adfae09307d080f7d8ac9e1bee1a3a51d1112c33.gifv"> 
 
 ![image](https://64.media.tumblr.com/a8faff01b3b63df00dca7519ebcd2079/3b85df06a211074f-4c/s1280x1920/8ffbb9bf645e1954d4d2d6ad6ef6b3406cb404ed.gifv)
+
+<img align="right" width="350" height="450" src="https://s6.ezgif.com/tmp/ezgif-68d92616d57d69.gif"> 
+
+_c+h freely unless stated . dni under 13 / over 21 ._
+
+<img align="left" width="350" height="270" src="https://github.com/user-attachments/assets/6e20cfe9-415d-4401-94e6-aeea2e65e6d9"> 
+
+
