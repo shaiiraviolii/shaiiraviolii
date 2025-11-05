@@ -23,12 +23,11 @@ _"call me sick. call me deranged. i’m gonna be your worst nightmare. i’m gon
 
 <img align="right" width="350" height="450" src="https://64.media.tumblr.com/fadb957a4c79a7d29e949d8c0323c08e/da83b2f05b290a57-e0/s500x750/085668245ede07b55a49f5d08404c0f826999d79.gif"> 
 
-
-<img align="left" width="350" height="400" src="https://github.com/user-attachments/assets/2f776f33-12ce-4894-a447-ec5e54a0337b"> 
-
+_c+h freely unless stated . dni under 13 / over 21_
 
 
 
+WIP
 
 
 
