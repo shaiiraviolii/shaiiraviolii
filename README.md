@@ -25,4 +25,4 @@ _"call me sick. call me deranged. i’m gonna be your worst nightmare. i’m gon
 
 🐍· · ─ ·𖥸· ─ · · <br/> _c+h freely unless stated . dni under 13 / over 21_ <br/> _⌯⌲i am very passionate about my interests, so if i end up bothering you let me know !!_ <br/> _ׂ╰┈➤heavykin jake peralta, cole (ninjago), and l.a. knight_
 
-_i am mostly offtab / doing homework / studying so please bear with me !_ <br/> _ᯓ★psa: depending on the mood i am in, i may be flirty / make nsfw jokes._ <br/> <br/> »「​ᗷᑌᖇᑎ Iᑎ ᗰY ᒪIGᕼT - ᗰEᖇᑕY ᗪᖇIᐯE​」« <br/> 0:58 ─〇───── 3:16 <br/>    ⇄   ◃◃   ⅠⅠ   ▹▹   ↻ <br/> <br/> ║▌║█║▌│║▌║▌█
+_i am mostly offtab / doing homework / studying so please bear with me !_ <br/> _ᯓ★psa: depending on the mood i am in, i may be flirty / make nsfw jokes._ <br/> <br/> »「​ᗷᑌᖇᑎ Iᑎ ᗰY ᒪIGᕼT - ᗰEᖇᑕY ᗪᖇIᐯE​」« <br/> 1:05 ──〇───── 3:55 <br/>    ⇄   ◃◃   ⅠⅠ   ▹▹   ↻ <br/> <br/> یک ستاره می‌درخشد. <br/> ║▌║█║▌│║▌║▌█
