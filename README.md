@@ -23,11 +23,8 @@ _"call me sick. call me deranged. i’m gonna be your worst nightmare. i’m gon
 
 <img align="right" width="350" height="450" src="https://64.media.tumblr.com/fadb957a4c79a7d29e949d8c0323c08e/da83b2f05b290a57-e0/s500x750/085668245ede07b55a49f5d08404c0f826999d79.gif"> 
 
-_c+h freely unless stated . dni under 13 / over 21_
+🐍· · ─ ·𖥸· ─ · · <br/> _c+h freely unless stated . dni under 13 / over 21_ <br/>_⌯⌲i am very passionate about my interests, so if i end up bothering you let me know !!_ <br/> _ׂ╰┈➤heavykin jake peralta, cole (ninjago), and l.a. knight_
 
+_i am mostly offtab / doing homework / studying so please bear with me !_ <br/> ᯓ★psa: depending on the mood i am in, i may be flirty / make nsfw jokes. <br/> <br/> »「​ᗷᑌᖇᑎ Iᑎ ᗰY ᒪIGᕼT - ᗰEᖇᑕY ᗪᖇIᐯE​」« <br/> 0:58 ─〇───── 3:16 <br/>    ⇄   ◃◃   ⅠⅠ   ▹▹   ↻ 
 
-
-WIP
-
-
-
+║▌║█║▌│║▌║▌█
