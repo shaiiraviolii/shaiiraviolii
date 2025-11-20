@@ -1,5 +1,5 @@
 ![image](https://64.media.tumblr.com/a8faff01b3b63df00dca7519ebcd2079/3b85df06a211074f-4c/s1280x1920/8ffbb9bf645e1954d4d2d6ad6ef6b3406cb404ed.gifv)
-[strawpage!](https://shaiiraviolii.straw.page/) ⋆｡ﾟ☁︎｡⋆｡ ﾟ☾ ﾟ｡⋆ [atabook!](https://shaiiraviolii.atabook.org/)
+[strawpage!](https://shaiiraviolii.straw.page/) ⋆｡ﾟ☁︎｡⋆｡ ﾟ☾ ﾟ｡⋆ [atabook!](https://shaiiraviolii.atabook.org/) ⋆｡ﾟ☁︎｡⋆｡ ﾟ☾ ﾟ｡⋆ [gunpage!](https://guns.lol/shaiiraviolii)
 
 _"call me sick. call me deranged. i’m gonna be your worst nightmare. i’m gonna be your hero whether you like it or not!"⋆｡°✩_ 
 
