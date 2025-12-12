@@ -26,3 +26,9 @@ _"call me sick. call me deranged. i’m gonna be your worst nightmare. i’m gon
 🐍· · ─ ·𖥸· ─ · · <br/> _c+h freely unless stated . dni under 13 / over 21_ <br/> _⌯⌲i am very passionate about my interests, so if i end up bothering you let me know !!_ <br/> _ׂ╰┈➤heavykin jake peralta, cole (ninjago), and dean ambrose_
 
 _i am mostly offtab / doing homework / studying so please bear with me !_ <br/> _ᯓ★psa: depending on the mood i am in, i may be flirty / make nsfw jokes._ <br/> <br/> »「​ᗷᑌᖇᑎ Iᑎ ᗰY ᒪIGᕼT - ᗰEᖇᑕY ᗪᖇIᐯE​」« <br/> 1:05 ──〇───── 3:55 <br/>    ⇄   ◃◃   ⅠⅠ   ▹▹   ↻ <br/> <br/> _"be myself? what kind of garbage advice is that?" ⋆｡°✩_ <br/> ║▌║█║▌│║▌║▌█
+
+<p align="center">
+  <img src="https://github.com/user-attachments/assets/4fe8648e-d1f7-4859-9d6d-4750dea540b9" alt="Description of the image" width="45%" />
+</p>
+
+<p align=center> "𝘵𝘩𝘪𝘴 𝘪𝘴 𝘸𝘩𝘢𝘵 𝘺𝘰𝘶 𝘤𝘢𝘭𝘭 𝘢 𝘱𝘢𝘳𝘢𝘥𝘪𝘨𝘮 𝘴𝘩𝘪𝘧𝘵. 𝘺𝘰𝘶'𝘳𝘦 𝘨𝘰𝘯𝘯𝘢 𝘩𝘢𝘷𝘦 𝘵𝘰 𝘳𝘪𝘱 𝘵𝘩𝘢𝘵 𝘣𝘦𝘭𝘵 𝘰𝘧𝘧 𝘮𝘺 𝘥𝘦𝘢𝘥 𝘣𝘰𝘥𝘺." </p> 
