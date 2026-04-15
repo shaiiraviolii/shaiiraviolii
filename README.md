@@ -5,8 +5,8 @@ _"call me sick. call me deranged. i’m gonna be your worst nightmare. i’m gon
 
 ![](https://komarev.com/ghpvc/?username=shaiiraviolii&label=HITTIN+IT+RAW+ON+MONDAY+NIGHT&base=696) ![image](https://github.com/user-attachments/assets/98dbf633-6035-4bf6-8e08-07b227052fac)
 
-<img align="left" width="350" height="400" src="https://64.media.tumblr.com/c492ae9d46f5226807830918bf61e9d4/24391ab21846aa51-8a/s400x600/86d93cf7a10516867a67f4ad1e05941b0263fc94.gifv">
-<img align="right" width="350" height="400" src="https://64.media.tumblr.com/d855872f248887cb9f95fbf12ed67107/cf2a53247f1e7819-4b/s400x600/6ceb8f7f7505d7afb1027ed1bcd0e69f6f5fd633.gifv">
+<img align="left" width="350" height="100" src="https://64.media.tumblr.com/c492ae9d46f5226807830918bf61e9d4/24391ab21846aa51-8a/s400x600/86d93cf7a10516867a67f4ad1e05941b0263fc94.gifv">
+<img align="right" width="350" height="100" src="https://64.media.tumblr.com/d855872f248887cb9f95fbf12ed67107/cf2a53247f1e7819-4b/s400x600/6ceb8f7f7505d7afb1027ed1bcd0e69f6f5fd633.gifv">
 
 
  _shai . 6teen . adhd . entp . ᶻ 𝗓 𐰁_ <br/> _#1 randy orton and l.a. knight enjoyer. also love cm punk + cody rhodes._ <img align="right" width="350" height="400" src="https://i.pinimg.com/736x/d0/c2/10/d0c21068d3b5ea2ce617b4760f5cd129.jpg"> 
